@@ -1,0 +1,2 @@
+# https-lawrighthub.com-what-is-the-legal-requirements-for-marriage-in-u-s-
+Marriage in the U.S. is legally recognized as the union between two individuals, usually for the purpose of establishing legal rights and responsibilities toward each other and any children they may have. Here are the main points to understand about marriage laws:
